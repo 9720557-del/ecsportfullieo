@@ -1,3 +1,4 @@
 # ecsportfullieo
-<img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/6c40e471-75d4-4abd-9ab1-017a9ab1c69d" />
-haha
+<img width="181" height="279" alt="image" src="https://github.com/user-attachments/assets/02dc28de-13f1-4e23-b743-ea203e0f08b8" />
+<img width="186" height="272" alt="image" src="https://github.com/user-attachments/assets/75450434-0fe4-41f1-9b36-d171abad6c73" />
+funny hahahahahahahaha
